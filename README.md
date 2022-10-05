@@ -4,4 +4,4 @@
 
 ### Dit niet
 
-![Afbeelding ezel](https://imgur.com/undefined)
+![Afbeelding ezel](https://imgur.com/lVNlVyS)
