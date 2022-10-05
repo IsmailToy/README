@@ -4,4 +4,4 @@
 
 ### Dit niet
 
-![Screenshot_20221003-232729_Discord]
+![Afbeelding ezel](Screenshot_20221003-232729_Discord)
